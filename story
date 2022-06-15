@@ -1,0 +1,3 @@
+story*
+Once upon a time, in a forest there lives a monkey who resided on a berry tree, which was on the
+bank of river. In a same forest, there lives a crocodile and his wife...
